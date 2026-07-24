@@ -28,8 +28,11 @@ Analysis. Using Microsoft Excel for making interactive dashboard for further ana
 # Final Conclusion to improve Vrinda Store Sales
 
 Target women customers of age group (30-39) are living in these state are more potential, main motive to boost up the sales by giving some offers with the help of ads/offers/coupons scheme may be beneficial to achieve the target. 
+
 Thanks & Regards
+
 Jaswinder Singh (+91-98037-00470)
+
 haanzee@gmail.com
 software_engineer_ot@yahoo.com
 
