@@ -33,6 +33,6 @@ Thanks & Regards
 
 Jaswinder Singh (+91-98037-00470)
 
-haanzee@gmail.com
+haanzee@gmail.com , 
 software_engineer_ot@yahoo.com
 
